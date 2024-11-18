@@ -1,4 +1,4 @@
-# Free Midjourney Pro Shared & Exclusive Membership Account Wholesale Purchase
+# Free Midjourney AI Pro Shared & Exclusive Membership Account Wholesale Purchase
 
 Website: [https://allshop.vip](https://allshop.vip/?_referrer=adgithubbdakx)
 
